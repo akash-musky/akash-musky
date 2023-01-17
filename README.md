@@ -8,6 +8,7 @@
 - ✨ I love to watch religious episodes like The Mahabharta, The Ramayana, The Vishnu Puran.
 - 🌻 For recreation I used to play cricket, talk to my family , hang out with my friends.
 - 💫 Love to spent time in gym, to watch web series over OTT platform.
+- 🫶 Last but not least I belive in genuine friendship and relationship.
 
 <!---
 akash-musky/akash-musky is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
