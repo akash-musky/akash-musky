@@ -1,6 +1,6 @@
-- 👋 Hi, I’m Akash Kumar. I was born  and brought up In Bakhtiyarpur, Patna, Bihar.
+- 👋 Hi, I’m Akash Kumar. I was born and brought up In Bakhtiyarpur, Patna, Bihar. Have two month experince in Optum UHG as Software Engineering Intern.
 - ⛳️ I am currently pursuing B.tech in National Institute Of Technology,Delhi in Computer Science Engineering.
-- 👀 Currently I’m Software Engineering Intern in Celigo. 
+- 👀 Currently I’m Software Engineering Intern in Celigo and also have FTE at the same designation in the same company. 
 - 👑 I Have pretty much experience in React Js, Node Js, Machine Learning , Data structure and Algorithms.
 - 👁 I am Passionate , Adaptable, Courageous and Flexible.
 - 💪 I believe in 'Karma'. I also recover quickly after being failed and back my self to give my best efforts.
