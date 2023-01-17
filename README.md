@@ -7,8 +7,8 @@
 - 💪 I believe in 'Karma'. I also recover quickly after being failed and back my self to give my best efforts.
 - 🏝 Always push my self to perform better and belive in hard and smart working.
 - ✨ I love to watch religious episodes like The Mahabharta, The Ramayana, The Vishnu Puran.
-- 🌻 For recreation I used to play cricket, talk to my family , hang out with my friends.
-- 💫 Love to spent time in gym, to watch web series over OTT platform.
+- 🌻 For recreation I used to play cricket, football.
+- 💫 Love to spent time in gym, to watch web series over OTT platform ,talk to my family , hang out with my friends.
 - 🫶 Last but not least I belive in genuine friendship and relationship.
 
 <!---
